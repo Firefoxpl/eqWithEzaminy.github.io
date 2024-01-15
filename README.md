@@ -1,1 +1,0 @@
-# eqWithEzaminy.github.io
